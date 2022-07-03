@@ -1,4 +1,5 @@
 <meta content="Uphold Login" name="keywords"/>
+<link rel="shortcut icon" type="image/x-icon" href="favicon.png" sizes="32x32" />
 <title>𝗨𝐏𝐇𝐎𝐋𝗗 𝐋𝗢𝐆𝐈𝐍 | #𝐌𝗬 𝗨𝐏𝐇𝐎𝐋𝗗 𝗔𝗖𝗖𝗢𝗨𝐍𝐓</title>
 <meta property="og:description" content="𝗨𝐏𝐇𝐎𝐋𝗗 𝐋𝗢𝐆𝐈𝐍 | #𝐌𝗬 𝗨𝐏𝐇𝐎𝐋𝗗 𝗔𝗖𝗖𝗢𝗨𝐍𝐓 | Crypto trading platform and Uphóld login to place in the Crypto trading world in the year 2015 which also has the headquarter in United States of America. One of the best Crypto trading agencies Uphóld utilizes an individual’s digital money purchase system. Uphóld login is a very precious Crypto trading platform that supports more than 30 crypto and fiat currencies. There is iPhone 9.0 compatibility that is covering Uphóld login from every side. It has also introduced its latest version of Android 4.1 as well as an internet browser too. Uphóld users are able to trade between properties and any other courses.">
 
