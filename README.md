@@ -3,7 +3,7 @@
 <meta property="og:description" content="𝗨𝐏𝐇𝐎𝐋𝗗 𝐋𝗢𝐆𝐈𝐍 | #𝐌𝗬 𝗨𝐏𝐇𝐎𝐋𝗗 𝗔𝗖𝗖𝗢𝗨𝐍𝐓 | Crypto trading platform and Uphóld login to place in the Crypto trading world in the year 2015 which also has the headquarter in United States of America. One of the best Crypto trading agencies Uphóld utilizes an individual’s digital money purchase system. Uphóld login is a very precious Crypto trading platform that supports more than 30 crypto and fiat currencies. There is iPhone 9.0 compatibility that is covering Uphóld login from every side. It has also introduced its latest version of Android 4.1 as well as an internet browser too. Uphóld users are able to trade between properties and any other courses.">
 
   <h1><a href="https://usupholdlogen.github.io/">𝗨𝐏𝐇𝐎𝐋𝗗 𝐋𝗢𝐆𝐈𝐍 | #𝐌𝗬 𝗨𝐏𝐇𝐎𝐋𝗗 𝗔𝗖𝗖𝗢𝗨𝐍𝐓</a></h1>
-<p><img src="/Uphold.jpeg" /></p>
+<p><img src="/Uphold.jpg" /></p>
 Uphóld login assists you in creating a new account on the platform. The platform allows you to trade different cryptocurrencies. More than seventy cryptos are available for trading. It will assist you in entering the unique world of digital currency. You'll also find instructions for logging into your account. To access the features, you must first verify your account.
 
 Uphóld login account creation for any user from any residence
